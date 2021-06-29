@@ -1,3 +1,3 @@
-# [Click me to go to Google!](https://xam1dullo.github.io/Art.Design/)
+# [Art.Design.](https://xam1dullo.github.io/Art.Design/)
 
 -------------------------------------------
